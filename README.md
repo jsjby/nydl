@@ -7,6 +7,10 @@
 
 【报名截止：5.5】[能源环境经济研究所](https://mp.weixin.qq.com/s/Z7SPgX7rNiFY4CH1-0Ch_A)
 
+## 中国科学院
+
+【报名截止：N/A】[上海硅酸盐研究所](https://mp.weixin.qq.com/s/f46H25UE2T5OZcPTx6l3Yw)
+
 ## 山东大学
 
 【报名截止：6.15】[前沿交叉科学青岛研究院](https://frontier.qd.sdu.edu.cn/info/1011/8709.htm)
