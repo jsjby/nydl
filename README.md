@@ -15,9 +15,15 @@
 
 【报名截止：N/A】[上海硅酸盐研究所](https://mp.weixin.qq.com/s/f46H25UE2T5OZcPTx6l3Yw)
 
+【报名截止：6.20】[上海应用物理研究所](https://www.sinap.cas.cn/yjsjynew/zsjz/sszs_177904/202504/t20250427_7617440.html)
+
 ## 山东大学
 
 【报名截止：6.15】[前沿交叉科学青岛研究院](https://frontier.qd.sdu.edu.cn/info/1011/8709.htm)
+
+## 上海科技大学
+
+【报名截止：6.20】[物质科学与技术学院](https://mp.weixin.qq.com/s/NubEkv0KpFv0jF79o_PM8Q)
 
 ##  怀柔实验室
 
