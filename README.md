@@ -21,11 +21,21 @@
 
 【报名截止：5.28】[化工学院暨能源材料化学协同创新中心](https://chem.xmu.edu.cn/info/1272/117455.htm)
 
+## 电子科技大学
+
+【报名截止：6.10】[基础与前沿研究院](https://iffs.uestc.edu.cn/info/1049/6292.htm)
+
+## 中国科学院大学
+
+【报名截止：N/A】[杭州高等研究院](http://hias.ucas.ac.cn/info/1100/6496.htm)
+
 ## 中国科学院
 
 【报名截止：N/A】[上海硅酸盐研究所](https://mp.weixin.qq.com/s/f46H25UE2T5OZcPTx6l3Yw)
 
 【报名截止：6.15】[青岛生物能源与过程研究所](https://mp.weixin.qq.com/s/cFLDvppcXWl-Wm39geM5WQ)
+
+【报名截止：6.15】[国家纳米科学中心](https://mp.weixin.qq.com/s/D8Rn0hcDkihNU0INpOTabw)
 
 【报名截止：6.20】[上海应用物理研究所](https://www.sinap.cas.cn/yjsjynew/zsjz/sszs_177904/202504/t20250427_7617440.html)
 
@@ -44,3 +54,7 @@
 ## 香港科技大学
 
 【报名截止：暂无】[工学院](https://mp.weixin.qq.com/s/Yub1OpBQy17EJmjKrQ7BSA)
+
+## 香港中文大学
+
+【报名截止：6.25】[理工学院（深圳）](https://mp.weixin.qq.com/s/EWIx0_usoP4pyU2iNexk8Q)
